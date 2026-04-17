@@ -95,7 +95,7 @@ No long-term contracts. You own the model outright.
 **Victor Huerta** · Bellingham, WA
 🌐 [pariox.co](https://pariox.co)
 ✉️ [victor@pariox.co](mailto:victor@pariox.co)
-💼 [LinkedIn](https://linkedin.com/in/YOUR-LINKEDIN)
+💼 [LinkedIn](https://www.linkedin.com/in/victor-huerta-6058b1403/)
 
 ---
 
